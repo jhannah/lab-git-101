@@ -2,7 +2,7 @@
 
 http://chrisvalleskey.com/fillerama/
 
-# The Route of All Evil
+## The Route of All Evil
 
 I guess because my parents keep telling me to be more ladylike. As though! Yep,
 I remember. They came in last at the Olympics, then retired to promote
@@ -18,9 +18,9 @@ Whoa a real live robot; or is that some kind of cheesy New Year's costume?
 You've killed me! Oh, you've killed me! Hey, what kinda party is this? There's
 no booze and only one hooker.
 
-*   THE BIG BRAIN AM WINNING AGAIN! I AM THE GREETEST! NOW I AM LEAVING EARTH,
-*   FOR NO RAISEN!  Large bet on myself in round one.  I was all of history's
-*   great robot actors - Acting Unit 0.8; Thespomat; David Duchovny!
+* THE BIG BRAIN AM WINNING AGAIN! I AM THE GREETEST! NOW I AM LEAVING EARTH, FOR NO RAISEN!  
+* Large bet on myself in round one.
+* I was all of history's great robot actors - Acting Unit 0.8; Thespomat; David Duchovny!
 
 ### Parasites Lost
 
@@ -37,9 +37,11 @@ need to drink?
 Ow, my spirit! Look, last night was a mistake. Fry! Stay back! He's too
 powerful!
 
-1.  Oh yeah, good luck with that.  2.  You guys realize you live in a sewer,
-right?  3.  Yeah, lots of people did.  4.  Hello, little man. I will destroy
-you!  5.  Ow, my spirit!
+1. Oh yeah, good luck with that.
+2. You guys realize you live in a sewer, right?
+3. Yeah, lots of people did.
+4. Hello, little man. I will destroy you!
+5. Ow, my spirit!
 
 ##### Fry and the Slurm Factory
 
@@ -53,8 +55,8 @@ could part with 'one' and still be feared…
 
 Ow, my spirit! What are their names? Say it in Russian!
 
-*   Ah, computer dating. It's like pimping, but you rarely have to use the
-*   phrase "upside your head." You can crush me but you can't crush my spirit!
+* Ah, computer dating. It's like pimping, but you rarely have to use the phrase "upside your head." 
+* You can crush me but you can't crush my spirit!
 
 ### How Hermes Requisitioned His Groove Back
 
@@ -69,9 +71,8 @@ Also Zoidberg. This opera's as lousy as it is brilliant! Your lyrics lack
 subtlety. You can't just have your characters announce how they feel. That
 makes me feel angry! Yeah, lots of people did.
 
-1.  Okay, it's 500 dollars, you have no choice of carrier, the battery can't
-hold the charge and the reception isn't very… 2.  Guards! Bring me the forms I
-need to fill out to have her taken away!
+1. Okay, it's 500 dollars, you have no choice of carrier, the battery can't hold the charge and the reception isn't very… 
+2. Guards! Bring me the forms I need to fill out to have her taken away!
 
 ##### The Why of Fry
 
