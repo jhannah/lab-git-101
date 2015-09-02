@@ -22,7 +22,7 @@ no booze and only one hooker.
 
 * THE BIG BRAIN AM WINNING AGAIN! I AM THE GREETEST! NOW I AM LEAVING EARTH, FOR NO RAISEN!  
 * Large bet on myself in round one.
-* I was all of history's great robot actors - Acting Unit 0.8; Thespomat; David Duchovny!
+* i WAS ALL OF HISTORY'S GREAT ROBOT ACTORS - aCTING uNIT 0.8; tHESPOMAT; dAVID dUCHOVNY!
 
 ### Parasites Lost
 
