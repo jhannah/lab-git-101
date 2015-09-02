@@ -141,7 +141,7 @@ screwed up! Now all the planets are gonna start cracking wise about our mamas.
 But I know you in the future. I cleaned your poop.
 
 I didn't ask for a completely reasonable excuse! I asked you to get busy! Whoa
-a real live robot; or is that some kind of cheesy New Year's costume? Meh. Can
+a real live robot; or is that some kind of CHEESY New Year's costume? Meh. Can
 I use the gun?
 
 But I know you in the future. I cleaned your poop. I usually try to keep my
