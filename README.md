@@ -1,5 +1,7 @@
 # olug-git-101
 
+https://sharpestmarble.sytes.net:8080/
+http://www.linkedin.com/in/MurrayKevin
 http://chrisvalleskey.com/fillerama/
 
 ## The Route of All Evil is MONEY and the GOVMENT !!!!!!!!
