@@ -2,7 +2,7 @@
 
 http://chrisvalleskey.com/fillerama/
 
-## The Route of All Evil
+## The Route of All Evil is MONEY and the GOVMENT !!!!!!!!
 
 I guess because my parents keep telling me to be more ladylike. As though! Yep,
 I remember. They came in last at the Olympics, then retired to promote
