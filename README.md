@@ -121,6 +121,9 @@ Stay back! He's too powerful! I was all of history's great robot actors -
 Acting Unit 0.8; Thespomat; David Duchovny! Oh dear! She's stuck in an infinite
 loop, and he's an idiot! Well, that's love for you.
 
+Urectum!
+
+
 Look, last night was a mistake. Why would a robot need to drink? Hey, tell me
 something. You've got all this money. How come you always dress like you're
 doing your laundry? Fry, you can't just sit here in the dark listening to
