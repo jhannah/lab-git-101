@@ -136,6 +136,16 @@ was having the most wonderful dream. Except you were there, and you were there,
 and you were there! Daylight and everything. No, of course not. It was… uh…
 porno. Yeah, that's it.
 
+Bacon ipsum dolor amet short ribs shankle ribeye bacon, sausage pastrami
+biltong filet mignon beef. Meatloaf shankle spare ribs, alcatra frankfurter
+leberkas drumstick biltong ham hock tenderloin sausage bacon shank. T-bone
+hamburger doner pork belly tenderloin tail jowl tri-tip ham hock pork strip
+steak fatback shankle. Turducken chuck capicola landjaeger cupim ground round
+tongue fatback meatball pastrami. Ham ball tip meatball leberkas, shoulder
+short loin spare ribs brisket pork tenderloin turducken jerky jowl sausage.
+Beef filet mignon ground round, shoulder chicken brisket short loin andouille
+tail alcatra.
+
 Yeah, lots of people did. I don't know what you did, Fry, but once again, you
 screwed up! Now all the planets are gonna start cracking wise about our mamas.
 But I know you in the future. I cleaned your poop.
