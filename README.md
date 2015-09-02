@@ -47,6 +47,7 @@ powerful!
 
 ##### Fry and the Slurm Factory
 #Firefly is da bomb!
+#so is Serenity
 
 Meh. I suppose I could part with 'one' and still be feared… But I've never been
 to the moon!
