@@ -1,8 +1,10 @@
 # olug-git-101
 
+https://sharpestmarble.sytes.net:8080/
+http://www.linkedin.com/in/MurrayKevin
 http://chrisvalleskey.com/fillerama/
 
-## The Route of All Evil
+## The Route of All Evil is MONEY and the GOVMENT !!!!!!!!
 
 I guess because my parents keep telling me to be more ladylike. As though! Yep,
 I remember. They came in last at the Olympics, then retired to promote
@@ -30,7 +32,7 @@ mating. With gusto. I've got to find a way to escape the horrible ravages of
 youth. Suddenly, I'm going to the bathroom like clockwork, every three hours.
 And those jerks at Social Security stopped sending me checks. Now 'I'' have to
 pay ''them'! Fetal stemcells, aren't those controversial? Why would a robot
-need to drink?
+need to drink? Or go on a bender?
 
 #### Kif Gets Knocked Up A Notch
 
@@ -38,7 +40,7 @@ Ow, my spirit! Look, last night was a mistake. Fry! Stay back! He's too
 powerful!
 
 1. Oh yeah, good luck with that.
-2. You guys realize you live in a sewer, right?
+2. You guys realize you live in a Sioux City sewer, right?
 3. Yeah, lots of people did.
 4. Hello, little man. I will destroy you!
 5. Ow, my spirit!
@@ -136,6 +138,16 @@ was having the most wonderful dream. Except you were there, and you were there,
 and you were there! Daylight and everything. No, of course not. It was… uh…
 porno. Yeah, that's it.
 
+Bacon ipsum dolor amet short ribs shankle ribeye bacon, sausage pastrami
+biltong filet mignon beef. Meatloaf shankle spare ribs, alcatra frankfurter
+leberkas drumstick biltong ham hock tenderloin sausage bacon shank. T-bone
+hamburger doner pork belly tenderloin tail jowl tri-tip ham hock pork strip
+steak fatback shankle. Turducken chuck capicola landjaeger cupim ground round
+tongue fatback meatball pastrami. Ham ball tip meatball leberkas, shoulder
+short loin spare ribs brisket pork tenderloin turducken jerky jowl sausage.
+Beef filet mignon ground round, shoulder chicken brisket short loin andouille
+tail alcatra.
+
 Yeah, lots of people did. I don't know what you did, Fry, but once again, you
 screwed up! Now all the planets are gonna start cracking wise about our mamas.
 But I know you in the future. I cleaned your poop.
@@ -163,3 +175,17 @@ Jesus? Ugh, it's filthy! Why not create a National Endowment for git Clubs
 while we're at it? I don't know what you did, Fry, but once again, you screwed
 up! Now all the planets are gonna start cracking wise about our mamas.
 
+Bacon ipsum dolor amet beef ribs hamburger tenderloin boudin pancetta, salami chicken leberkas shoulder pork loin. Pastrami jowl meatloaf biltong porchetta, salami ball tip short ribs spare ribs. Tenderloin short loin beef, ball tip spare ribs t-bone pig shoulder beef ribs. Shoulder beef landjaeger drumstick boudin. T-bone corned beef salami, chicken ball tip frankfurter kevin pancetta.
+
+Ham hock landjaeger shankle beef frankfurter bacon pastrami tenderloin turducken. Tail swine shoulder, tri-tip kielbasa meatball salami sausage frankfurter short loin capicola turducken meatloaf pork chop shank. Pork belly turducken turkey, prosciutto kevin pork capicola shankle spare ribs leberkas short loin frankfurter bacon jowl. Andouille tenderloin venison rump capicola turkey. Leberkas tenderloin pork belly, pancetta swine tail tri-tip. Picanha tri-tip frankfurter, pig porchetta kielbasa spare ribs.
+
+Pork loin ribeye sausage beef ribs landjaeger shankle ball tip t-bone. Tail turkey turducken doner filet mignon. Frankfurter ball tip shank boudin. Biltong porchetta turkey frankfurter pork belly pork chop brisket tenderloin prosciutto strip steak landjaeger tri-tip pastrami. Salami turducken beef ribs, shank meatball chicken tri-tip biltong strip steak tenderloin bacon kielbasa porchetta shankle.
+
+Beef ribs pork chop prosciutto, ham meatball shank jowl andouille pig cow kevin. Shank tri-tip brisket, ball tip shankle bresaola kevin swine short ribs. Flank leberkas tongue, ham hock shoulder tail ham kevin biltong ball tip pastrami jowl sirloin drumstick. Beef tongue filet mignon ground round fatback porchetta cow alcatra picanha ham hock capicola.
+
+Rump corned beef shank porchetta. Pancetta landjaeger shankle picanha doner ground round pastrami chuck. Ribeye bresaola short ribs swine boudin rump hamburger drumstick pork chop tri-tip landjaeger tongue picanha andouille short loin. Capicola beef ribs chuck picanha short ribs. Ham hock chuck swine pork loin. Kielbasa rump bacon shank salami.
+Does your lorem ipsum text long for something a little meatier? Give our generator a try… it’s tasty!
+
+BARRY!!
+
+I'm going to start my own carnival, with booze and hookers!
