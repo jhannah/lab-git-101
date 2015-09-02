@@ -46,6 +46,7 @@ powerful!
 5. Ow, my spirit!
 
 ##### Fry and the Slurm Factory
+#Firefly is da bomb!
 
 Meh. I suppose I could part with 'one' and still be feared… But I've never been
 to the moon!
