@@ -38,7 +38,7 @@ Ow, my spirit! Look, last night was a mistake. Fry! Stay back! He's too
 powerful!
 
 1. Oh yeah, good luck with that.
-2. You guys realize you live in a sewer, right?
+2. You guys realize you live in a Sioux City sewer, right?
 3. Yeah, lots of people did.
 4. Hello, little man. I will destroy you!
 5. Ow, my spirit!
