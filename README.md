@@ -30,7 +30,7 @@ mating. With gusto. I've got to find a way to escape the horrible ravages of
 youth. Suddenly, I'm going to the bathroom like clockwork, every three hours.
 And those jerks at Social Security stopped sending me checks. Now 'I'' have to
 pay ''them'! Fetal stemcells, aren't those controversial? Why would a robot
-need to drink?
+need to drink? Or go on a bender?
 
 #### Kif Gets Knocked Up A Notch
 
