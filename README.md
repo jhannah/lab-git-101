@@ -6,7 +6,7 @@ http://chrisvalleskey.com/fillerama/
 
 I guess because my parents keep telling me to be more ladylike. As though! Yep,
 I remember. They came in last at the Olympics, then retired to promote
-alcoholic beverages! Hey, tell me something. You've got all this money. How
+ALCOHOLIC BEVERAGES! hEY, TELL ME SOMETHING. yOU'VE Got all this money. How
 come you always dress like you're doing your laundry? What are their names?
 You'll have all the Slurm you can drink when you're partying with Slurms
 McKenzie! Now that the, uh, garbage ball is in space, Doctor, perhaps you can
@@ -76,7 +76,7 @@ makes me feel angry! Yeah, lots of people did.
 
 ##### The Why of Fry
 
-Then throw her in the laundry room, which will hereafter be referred to as "the
+Then throw her in the laundry room, which will hereafTer be referred to as "the
 brig". Then throw her in the laundry room, which will hereafter be referred to
 as "the brig". You, a bobsleder!? That I'd like to see! Leela, are you alright?
 You got wanged on the head. Look, last night was a mistake. I just want to
