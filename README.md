@@ -159,7 +159,7 @@ that the, uh, garbage ball is in space, Doctor, perhaps you can help me with my
 sexual inhibitions?
 
 You guys aren't Santa! You're not even robots. How dare you lie in front of
-Jesus? Ugh, it's filthy! Why not create a National Endowment for Strip Clubs
+Jesus? Ugh, it's filthy! Why not create a National Endowment for git Clubs
 while we're at it? I don't know what you did, Fry, but once again, you screwed
 up! Now all the planets are gonna start cracking wise about our mamas.
 
